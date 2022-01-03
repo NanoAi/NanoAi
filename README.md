@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 - ↗️ Website: https://mirai.red/
 ___
 
-### Wishlist! 💸 - (But me stuff ;w;)
+### Wishlist! 💸 - (Buy me stuff ;w;)
 - Rusk (3D Model) @ [[link]](https://booth.pm/en/items/2559783) via `booth.pm`.
 - XSOverlay (Application) @ [[link]](https://store.steampowered.com/app/1173510/XSOverlay/) via `steampowered.com`.
 
