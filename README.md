@@ -26,4 +26,4 @@ ___
 ___
 ### Contact Me!
 - Discord: NanoAi#4321 | No random friend requests please!
-- - Server: https://mirai.red/join | [Direct Link](https://discord.gg/7StvK5YD6t)
+- - Server: https://mirai.red/join | [Direct Link](https://discord.gg/7StvK5YD6t) via `discord.gg`.
