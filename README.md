@@ -1,4 +1,4 @@
-### Hi there 👋
+### Ohayo! 👋
 
 <!--
 **NanoAi/NanoAi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 😄 Pronouns: She/Her
+- ⚡ Collab with me on game design projects!
+- ↗️ Website: https://mirai.red/
+___
+
+### Wishlist! ⭐
+- Rusk (3D Model) @ [[link]](https://booth.pm/en/items/2559783) via `booth.pm`.
+- XSOverlay (Application) @ [[link]](https://store.steampowered.com/app/1173510/XSOverlay/) via `steampowered.com`.
