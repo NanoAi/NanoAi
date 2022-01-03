@@ -22,3 +22,8 @@ ___
 ### Wishlist! ⭐
 - Rusk (3D Model) @ [[link]](https://booth.pm/en/items/2559783) via `booth.pm`.
 - XSOverlay (Application) @ [[link]](https://store.steampowered.com/app/1173510/XSOverlay/) via `steampowered.com`.
+
+___
+### Contact Me!
+- Discord: NanoAi#4321 | No random friend requests please!
+- - Server: https://mirai.red/join | [Direct Link](https://discord.gg/7StvK5YD6t)
