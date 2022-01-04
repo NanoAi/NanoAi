@@ -21,6 +21,7 @@ ___
 
 ### Wishlist! 💸 - (Buy me stuff ;w;)
 - Rusk (3D Model) @ [[link]](https://booth.pm/en/items/2559783) via `booth.pm`.
+- - You can't actually gift on the site above, but contact me I guess. ^^;
 - ~~XSOverlay (Application) @ [[link]](https://store.steampowered.com/app/1173510/XSOverlay/) via `steampowered.com`.~~
 - - Thanks MBRound18 you are the best! ❤️
 
